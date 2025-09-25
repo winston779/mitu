@@ -1,6 +1,6 @@
 # 咪兔Mitu官网地址
 
-最新地址：[mitoo.me](https://shop.mitoo.me/#/register?code=8McpxX7o)
+最新地址：[mitoo.me](https://bibi.metu.dev/register?code=8McpxX7o)
 
 ## 咪兔Mitu介绍
 
